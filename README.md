@@ -1,1 +1,3 @@
-# 22068811_Saugat_Pradhan_M4
+Name: Saugat Pradhan
+London Met ID: 22068811
+Email: np01mm4a220160@islingtoncollege.edu.np
